@@ -44,4 +44,12 @@ Recaba informacion de los usuarios necesitan, recabando informacion por medio de
 
 #### Pregunta Numero 3
 
+<p>
+Nike se tuvo que innovar y utilizo la tecnologia para poder dar a sus clientes nuevas formas de ver el deporte, brindando informacion que genera competencia entre los mismos cliente fortaleciendo la buena competencia y adaptacion de en la herramientas tecnologicas
+</p>
+
 #### Pregunta Numero 4
+
+<p>
+Nike tiene mucha ventaja de sus competencias ya que innova en sus producto, ademas no solo ve por los producto sino tambien tiene amplia gama de producto que se adapta todo tipo de atletas de los diferentes niveles de rendimiento, y aplica todo tipo de estrategia para que los clientes se beneficie con la herramientas que esta disponiples que solo es calzado sino una empresa tecnologica
+</p>
